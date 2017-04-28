@@ -1,4 +1,3 @@
 # sarah-x-zhang.github.io
-Hello world! 
+Engineer.Violinist.Beauty is my reponsibility.
 
-Welcome to my world!
