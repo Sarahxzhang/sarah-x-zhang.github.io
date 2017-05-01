@@ -1,3 +1,3 @@
 # sarah-x-zhang.github.io
 Engineer. Violinist. Beauty is my responsibility.
-On My Way There...
+On my way there.
